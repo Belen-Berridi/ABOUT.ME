@@ -26,15 +26,15 @@ I’m not just looking to learn technology, but to discover where I can contribu
 I don’t have a fixed path yet, and that excites me, because every new project is a door to something different.
 
 ### **What drives me**
-🌱 Curiosity to understand how this new decentralized internet works
-🌱 The desire to experiment with projects and communities
-🌱 A passion for learning by doing
+🌱 Curiosity to understand how this new decentralized internet works  
+🌱 The desire to experiment with projects and communities  
+🌱 A passion for learning by doing  
 🌱 The idea that in Web3 there’s always space to build something unique
 
 ### **My goals**
-🎯 To participate in projects that challenge and inspire me
-🎯 To find my place within the Web3 ecosystem
-🎯 To develop technical skills that allow me to create real value
+🎯 To participate in projects that challenge and inspire me  
+🎯 To find my place within the Web3 ecosystem  
+🎯 To develop technical skills that allow me to create real value  
 🎯 To connect with people who share the vision of a more open and decentralized world
 
 ⛓️‍💥 I’m here to learn, collaborate, and leave my mark on this new chapter of technology!
