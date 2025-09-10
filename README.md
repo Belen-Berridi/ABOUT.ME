@@ -1,4 +1,4 @@
-# 🙋🏽‍♀️ Hola, soy Tamara Belén Berridi  
+# 🙋🏽‍♀️ Hola, soy Belén Berridi  
 
 ## 🚀 Estoy iniciando mi viaje en el universo de Web3.  
 No busco solo aprender tecnología, sino descubrir dónde puedo aportar, crear y crecer.  
@@ -19,7 +19,7 @@ Todavía no tengo un rumbo fijo, y eso me emociona, porque cada nuevo proyecto e
 ⛓️‍💥 Estoy aquí para aprender, colaborar y dejar mi huella en este nuevo capítulo de la tecnología!
 
 
-# 🙋🏽‍♀️ Hi, I’m Tamara Belén Berridi
+# 🙋🏽‍♀️ Hi, I’m Belén Berridi
 
 ## 🚀 I’m starting my journey into the Web3 universe.
 I’m not just looking to learn technology, but to discover where I can contribute, create, and grow.
